@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Arturosl1998
+- 👀 I’m interested in learning through new experiences and meeting new people. I have a strong passion for agriculture and enviormental practices.  
+- 🌱 I’m currently learning how to exloit my abilities and learn form my weaknesses. 
+- 💞️ I’m looking to collaborate on any project involving management, sustainability and innovation
+- 📫 How to reach me arturosl1998@gmail.com
